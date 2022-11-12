@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Metraf
+- 👀 I’m interested in learning tech stuff
+- 🌱 I've been learning Cabinet Making for more than 3 years now as an apprentice 
+- 💞️ I’m looking to collaborate on really cool projects
